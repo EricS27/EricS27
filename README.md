@@ -9,7 +9,7 @@
 - I'll be more than happy to sart at the beginng
 - Maybe Im overthinking. But there's red flags everywhere.
 
--                  Yhanks in Advance.
+-                  Thanks in Advance.
 
 <!---
 EricS27/EricS27 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
