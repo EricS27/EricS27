@@ -7,9 +7,7 @@
 - 
 - 📫 How to reach me ... jigglyjuggs27@gmail.com
 - I'll be more than happy to sart at the beginng
-- Maybe Im overthinking. But there's red flags everywhere.
-
--                  Thanks in Advance.
+- Maybe Im overthinking. But there's red flags everywhere. all the signs are there. And to be honest I think some asshole on here is trying yo steal something from me that i have coming next week in the mail. i apologize for being a newbie but something's gotta give. 
 
 <!---
 EricS27/EricS27 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
